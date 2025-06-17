@@ -1,4 +1,4 @@
-### 2025 GME Hackathon
+### 2025 GME Hackathon 
 
 We will have KCBD 1100 for presentations and hacking. Coffee in the morning/afternoon and lunch will be provided in the lobby of KCBD. Here is a brief schedule of the hackathon:
 
